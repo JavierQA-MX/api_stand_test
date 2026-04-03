@@ -7,7 +7,7 @@ To start off don't take anything too serious. As well as anyone else, I know abo
 and I can excuse behind the fact that no one knows everything, so pls be nice and kind who wish to have half the knowledge you do.
 And, be also flexible with your thoughts since they come and go, but they are not written in stone, unless you do.
 
-Must believe in your values and principles to act when you presence them tearing apart - The one whose called pacifist but cannot defend himself is harmless
+Must believe in your values and principles to act when you presence someone tearing them apart - The one who call themselves pacifist but cannot defend himself are harmless
 
 
 
